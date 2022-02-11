@@ -1,10 +1,38 @@
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Pellentesque imperdiet faucibus facilisis. Pellentesque at porta eros. Phasellus erat orci, tristique in consequat quis, tempor a tellus. Vestibulum quis tincidunt lorem. Integer ex nisl, egestas ac nisi sed, viverra malesuada est. Nulla sit amet dui vel est rutrum eleifend. Vivamus sit amet pharetra urna. Etiam id sagittis nunc, a consequat urna. Ut volutpat ut leo sed accumsan. Maecenas et dolor id dui tempor venenatis. Maecenas feugiat mauris commodo purus imperdiet porta. Nulla hendrerit augue vulputate quam egestas cursus. Pellentesque vel vestibulum massa.
+Okay, it's 500 dollars, you have no choice of carrier, the battery can't hold the charge and the reception isn't very…
+No, I'm Santa Claus! Of all the friends I've had… you're the first. Shinier than yours, meatbag. I'm just glad my fat, ugly mama isn't alive to see this day. Why not indeed! As an interesting side note, as a head without a body, I envy the dead.
 
-Nullam ut eros in ipsum cursus mollis in ac odio. Quisque posuere felis et nisl venenatis, nec scelerisque ipsum eleifend. Quisque consectetur euismod est. Nunc viverra elit id rutrum efficitur. Nulla vitae nibh a augue rhoncus semper at eget dolor. Fusce finibus interdum ante, at feugiat nibh viverra sit amet. Integer nec arcu ac nulla sodales ultricies eu vitae dui. Vestibulum nec bibendum ligula, eu tristique dui. Class aptent taciti sociosqu ad litora torquent per conubia nostra, per inceptos himenaeos. Vivamus tempor nec lacus eget dapibus. Fusce convallis semper velit et tempor. Cras sit amet velit at dui placerat maximus. Fusce varius eros vitae dui tempus molestie. Sed at rutrum lorem, vel euismod elit.
+Now what? Isn't it true that you have been paid for your testimony? I usually try to keep my sadness pent up inside where it can fester quietly as a mental illness. In our darkest hour, we can stand erect, with proud upthrust bosoms.
 
-Class aptent taciti sociosqu ad litora torquent per conubia nostra, per inceptos himenaeos. Sed nec interdum arcu, sed interdum massa. Integer in lacus vitae sem iaculis vestibulum quis vitae tellus. Nam sit amet consectetur sem. Pellentesque habitant morbi tristique senectus et netus et malesuada fames ac turpis egestas. Quisque at augue eget turpis lacinia gravida et vitae ex. Mauris laoreet iaculis mattis. Praesent porttitor erat eget nunc aliquet, non ultricies lacus sodales. Fusce non nunc sit amet quam bibendum fringilla id sit amet dolor. Sed quam arcu, feugiat a justo in, molestie venenatis ante. Nulla vel lobortis tortor. Nam vitae quam dignissim, congue risus et, sagittis diam. Fusce semper arcu nibh, sed posuere metus consequat id. Mauris eu auctor lectus, sollicitudin congue metus. Sed eros risus, auctor id libero a, iaculis sollicitudin lectus. In vitae egestas nisl, ac accumsan dolor.
+I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
+But I know you in the future. I cleaned your poop. Bender, this is Fry's decision… and he made it wrong. So it's time for us to interfere in his life. Who are those horrible orange men? And I'd do it again! And perhaps a third time! But that would be it.
 
-Mauris congue, nibh eget ullamcorper lobortis, risus diam varius risus, a maximus nisl magna non eros. Nunc nisi ex, vehicula quis tellus porta, suscipit efficitur lorem. Interdum et malesuada fames ac ante ipsum primis in faucibus. Duis non euismod mi, id vestibulum nunc. Suspendisse venenatis ligula eu augue cursus, et pretium nulla dapibus. Vivamus dignissim, risus et pellentesque volutpat, libero felis malesuada ipsum, id fermentum mi risus suscipit erat. Sed non pellentesque ante. Ut bibendum, nibh nec tincidunt consequat, augue est ultricies nunc, vel interdum metus diam quis dui. Phasellus in neque sit amet turpis hendrerit faucibus a et risus. Vestibulum ante ipsum primis in faucibus orci luctus et ultrices posuere cubilia curae; Donec bibendum dolor ac mi feugiat feugiat. Sed tristique ullamcorper dolor, eu venenatis quam maximus quis.
+Bender, quit destroying the universe!
+And I'd do it again! And perhaps a third time! But that would be it.
+I'm just glad my fat, ugly mama isn't alive to see this day.
+Please, Don-Bot… look into your hard drive, and open your mercy file!
+And I'd do it again! And perhaps a third time! But that would be it. Say what? Ah, yes! John Quincy Adding Machine. He struck a chord with the voters when he pledged not to go on a killing spree. Now Fry, it's been a few years since medical school, so remind me. Disemboweling in your species: fatal or non-fatal?
 
-Ut ultrices a ex sed consequat. Proin porta, tellus ac dictum posuere, massa est elementum leo, mattis posuere risus odio sit amet urna. Duis ornare nulla a pulvinar laoreet. Praesent non sem egestas, faucibus dui ut, hendrerit massa. Ut finibus a ligula vitae pretium. Donec ac efficitur lectus. Nunc eu tristique lacus, at consectetur mauris. Morbi malesuada lacus sed egestas suscipit. Curabitur nec est non risus euismod egestas vel nec metus. Sed consequat leo nec ligula tincidunt lacinia. Phasellus consequat purus tincidunt elit accumsan vestibulum. Quisque nec nisl vel neque consequat sagittis vel vitae sapien. Duis auctor urna at libero scelerisque, in semper ipsum consequat. Proin at aliquam massa. Etiam non sodales orci, eget auctor ante.
+There's no part of that sentence I didn't like!
+I was having the most wonderful dream. Except you were there, and you were there, and you were there!
+Yeah. Give a little credit to our public schools.
+It doesn't look so shiny to me. I'll tell them you went down prying the wedding ring off his cold, dead finger. If rubbin' frozen dirt in your crotch is wrong, hey I don't wanna be right. I'm sure those windmills will keep them cool.
 
+Hey, guess what you're accessories to. Hello, little man. I will destroy you! And I'm his friend Jesus. Oh, you're a dollar naughtier than most. What kind of a father would I be if I said no?
+
+Oh, I don't have time for this. I have to go and buy a single piece of fruit with a coupon and then return it, making people wait behind me while I complain. And I'd do it again! And perhaps a third time! But that would be it.
+
+Oh, I don't have time for this. I have to go and buy a single piece of fruit with a coupon and then return it, making people wait behind me while I complain. This is the worst part. The calm before the battle.
+
+And so we say goodbye to our beloved pet, Nibbler, who's gone to a place where I, too, hope one day to go. The toilet. Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
+
+That could be 'my' beautiful soul sitting naked on a couch. If I could just learn to play this stupid thing. There, now he's trapped in a book I wrote: a crummy world of plot holes and spelling errors!
+
+Now what? You guys aren't Santa! You're not even robots. How dare you lie in front of Jesus? Do a flip! Son, as your lawyer, I declare y'all are in a 12-piece bucket o' trouble. But I done struck you a deal: Five hours of community service cleanin' up that ol' mess you caused.
+
+Yeah, I do that with my stupidness. This is the worst kind of discrimination: the kind against me! You know the worst thing about being a slave? They make you work, but they don't pay you or let you go.
+
+My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards. Yes! In your face, Gandhi!
+
+I barely knew Philip, but as a clergyman I have no problem telling his most intimate friends all about him. I barely knew Philip, but as a clergyman I have no problem telling his most intimate friends all about him.
+
+Come, Comrade Bender! We must take to the streets! Of all the friends I've had… you're the first. Fry! Quit doing the right thing, you jerk! My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards.
